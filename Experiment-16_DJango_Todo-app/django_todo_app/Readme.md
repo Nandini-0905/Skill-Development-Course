@@ -124,6 +124,6 @@ This project is **open-source** and free to use.
 
 • **B. Nandini**
 
-• GitHub: [https://github.com/swayamprakashm](https://github.com/Nandini-0905)
+• GitHub: [https://github.com/Nandini-0905](https://github.com/Nandini-0905)
 
 ---
