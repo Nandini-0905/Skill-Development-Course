@@ -91,7 +91,7 @@ This project is **open-source** and free to use.
 
 ### **Developed by:**
 
-•**M. Swayam Prakash**
+•**B. Nandini**
 
 •GitHub: [https://github.com/Nandini-0905](https://github.com/Nandini-0905)
 
